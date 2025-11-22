@@ -4,7 +4,7 @@
 
 <img width="2037" height="1456" alt="1000008323" src="https://github.com/user-attachments/assets/6ae5d55e-051f-43f5-8535-b1d400fbee03" />
 
-###### you can use it as pfp or banner anything lilly but dont forget this is wipp....
+###### i cant FINISH THIS
 
 
 
