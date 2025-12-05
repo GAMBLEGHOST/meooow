@@ -1,10 +1,10 @@
 ##### i might not color this maybe uhh but ill try !!
 
-##### gift for lilly <3
+##### gift for lilly 
 
 <img width="2037" height="1456" alt="1000008323" src="https://github.com/user-attachments/assets/6ae5d55e-051f-43f5-8535-b1d400fbee03" />
 
-###### i cant FINISH THIS
+###### i cant FINISH THIS </3
 
 
 
